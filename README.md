@@ -1,0 +1,1 @@
+# Emanuel-Trading-AI
